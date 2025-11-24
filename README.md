@@ -75,4 +75,4 @@ As the **Developer Team Lead** at Adroit Consulting (2020–2025), my responsibi
 
 ## 📬 Contact
 
-**Tunde [Last Name]** *Senior Full Stack Developer & AI Solutions Architect* [Link to your Portfolio/Website] | [Link to LinkedIn]
+**Tunde Oluwamo** *Senior Full Stack Developer & AI Solutions Architect* [linkedin.com/in/oluwamo-shadrach-740242185]
